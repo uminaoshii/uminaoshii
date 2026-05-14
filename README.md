@@ -1,6 +1,6 @@
 ## tung tung tung sahur
 _skibidi tralalero tralala_
-![caca](https://demolab.com)
+
 <!--
 **uminaoshii/uminaoshii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
