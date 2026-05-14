@@ -1,6 +1,4 @@
-## tung tung tung sahur
-_skibidi tralalero tralala_
-
+just passing by.
 <!--
 **uminaoshii/uminaoshii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
